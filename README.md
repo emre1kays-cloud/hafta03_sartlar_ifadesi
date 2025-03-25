@@ -1,0 +1,1 @@
+# hafta03_sartlar_ifadesi
